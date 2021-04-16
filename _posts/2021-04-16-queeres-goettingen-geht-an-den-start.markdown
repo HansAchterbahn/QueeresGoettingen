@@ -14,5 +14,5 @@ Moin, moin,
 
 wir sind online und werden euch bald mit spannenden Inhalten beliefern. Wir freuen uns schon jetzt auf alles, was noch folgen wird!
 
-Bis in Kürze
+Bis in Kürze  
 Queeres Göttingen
